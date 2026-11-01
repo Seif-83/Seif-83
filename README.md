@@ -65,7 +65,7 @@ I love turning ideas into real-world digital solutions, exploring new technologi
 
 - 💼 LinkedIn: [Your LinkedIn Profile](YOUR_LINKEDIN_URL)
 - 🌐 Portfolio: [Seifinity](YOUR_PORTFOLIO_URL)
-- 📧 Email: YOUR_EMAIL
+- 📧 Email: seifamrmohsen2005@gmail.com
 
 ---
 
